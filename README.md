@@ -1,1 +1,0 @@
-# SN-bootcamp-projects
